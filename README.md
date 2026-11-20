@@ -27,4 +27,3 @@ Cyber Security student in Melbourne, Australia, with a programming background an
 
 ## Connect
 - 💼 LinkedIn: https://www.linkedin.com/in/ozan-vard-842798423/
-- 📧 ozanvard@gmail.com
